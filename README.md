@@ -1,6 +1,5 @@
-**Hey there 👋, and welcome 💙**
+**Hey there 👋 💙**
 
-**We're cooking up something special.**
 
 **Time to learn, earn and create some change. 🌍**
 
